@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm web developer, currently working at DYPCOEI Incubation center.<br>I'm looking for Internship, remote work, and freelance work. <br>I make Business landing pages and portfolio websites at less price starting from just 999 rupees.
+I'm web developer, currently working at DYPCOEI Incubation center.<br>I'm looking for Internship, remote work, and freelance work. 
 
 
 ## 🌐 Socials:
